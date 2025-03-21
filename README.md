@@ -39,6 +39,8 @@ You can connect with me through:
 📸 Instagram: @ashle.yimmanuel
 💼 LinkedIn: Ashley Immanuel
 💬 GitHub: Feel free to message me directly here on GitHub!
+
+
 😄 Pronouns
 He/Him
 
